@@ -1,0 +1,1 @@
+inilah awal sejarah hehe
