@@ -8,4 +8,5 @@ ini dari Jogja
 
 aku ubah dari medan kwkw
 
-Semangat Untu Tujaun Membua Start UP
+Semangat Untuk Tujaun Membuat Start UP
+salam dari Jogja
